@@ -1,2 +1,2 @@
 # Essence
-Página de moda
+Página sobre moda, el como vestir, tendencis y evolucion.
